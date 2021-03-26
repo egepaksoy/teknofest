@@ -1,1 +1,1 @@
-# Teknofestte Yaptıklarımı Buraya Detaylı Şekilde Push Edicem
+# Teknofestte Yaptıklarımı Buraya Detaylı Şekilde Push Edeceğim
